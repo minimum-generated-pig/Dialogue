@@ -11,7 +11,7 @@ I'm sorry sir, I'll check on your order right away.
 
 Relax, honey. The place is busy tonight, and I've heard the food is amazing anyway. 
 
-Here you are, sir. The foie Gras for the lady and a mushroom soup for you. 
+Here you are, sir. The foie gras for the lady and a mushroom soup for you. 
 
 Waiter, I ordered a cream of mushroom soup with asparagus, 
 the soup is obviously too runny, and it's over seasoned. 
@@ -20,7 +20,7 @@ It's completely inedible.
 OK, I do apologize for that. 
 Can I bring you another soup, or would you like to order something else? 
 
-Take this foie Gras back as well, it's rubbery and completely overcooked. 
+Take this foie gras back as well, it's rubbery and completely overcooked. 
 And look at that portion size. 
 How can you charge $25 for a sliver of duck liver? 
 
