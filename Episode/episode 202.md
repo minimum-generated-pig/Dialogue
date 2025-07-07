@@ -11,7 +11,7 @@ I'm sorry sir, I'll check on your order right away.
 
 Relax, honey. The place is busy tonight, and I've heard the food is amazing anyway. 
 
-Here you are, sir. The frog wall for the lady and a mushroom soup for you. 
+Here you are, sir. The foie Gras for the lady and a mushroom soup for you. 
 
 Waiter, I ordered a cream of mushroom soup with asparagus, 
 the soup is obviously too runny, and it's over seasoned. 
